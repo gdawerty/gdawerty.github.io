@@ -8,7 +8,7 @@
 
 ---
 
-### Teaching Assistant - University of Minnesota
+### Cross Country / Nordic Ski Coach - District196
 
 
 ---
